@@ -1,8 +1,9 @@
 <p align=center><img src= "https://komarev.com/ghpvc/?username=csrverse&color=1f2224&style=plastic&label=prying-eyes" alt="prying-eyes" width=150 height=25/></p>
   
 
-# $${\color{blue}@; img\ text\ -\ streaming: hail-sound\}$$
-### hi! welcome to my pt profile :) <img src=https://i.imgur.com/YMneAcS.gif width=400 height=400 align=right margin-left=50px>
+# $${\color{blue}@; img\ text\}$$
+### $${\color{blue} streaming: hail\ sound\ -\ lauren\ bousfield\}$$ <img src=https://i.imgur.com/YMneAcS.gif width=400 height=400 align=right margin-left=50px>
+### hi! welcome to my pt profile :)
 ### this is mostly an about me for anything outside of RP
 ### ~ ♠ ~
 ### dni reasonably doesnt apply in RP, but if you just wanna talk casually my about me is below!!
