@@ -2,7 +2,7 @@
   
 
 # $${\color{blue}@; img\ text\ -\ streaming: hail-sound\}$$
-### hi! welcome to my pt profile :) <img src=https://s13.gifyu.com/images/bqnqK.gif width=400 height=400 align=right margin-left=50px>
+### hi! welcome to my pt profile :) <img src=https://i.imgur.com/YMneAcS.gif width=400 height=400 align=right margin-left=50px>
 ### this is mostly an about me for anything outside of RP
 ### ~ ♠ ~
 ### dni reasonably doesnt apply in RP, but if you just wanna talk casually my about me is below!!
