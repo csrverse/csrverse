@@ -92,4 +92,4 @@ but if youre under 15 then id rather you not interact with me because i tend to 
 ### <p align=center> $${\color{blue}of\ course\ this\ discomfort\ wont\ apply\ in\ rp\ since\ ill\ be\ obligated\ to\ talk\ to\ you,\ but\ please\ respect\ this\ outside\ of\ it!\ :)\}$$</p>
 <p align=center><img src=https://i.imgur.com/HsNAljp.png></p>
 
-###### <p align=center>art is by the amazing @ciyonu on twitter!! go follow them:D</p>
+###### <p align=center>art is by my lovely friend @ciyonu on twitter!! go follow them:D</p>
